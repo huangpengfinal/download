@@ -16,3 +16,4 @@ Bookmark this page to download the latest versions in the future.
 
 
 🔴请从官网https://GetLantern.org 或者本页面下载蓝灯软件。其他网站的下载链接都可能包含病毒。🔴
+退钱 退钱
